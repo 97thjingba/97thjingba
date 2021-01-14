@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![avatar](./assets/tuo.jpeg)
+O ever youthful, O ever weeping
